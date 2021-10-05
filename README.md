@@ -1,7 +1,7 @@
 - 👋  Hi, I’m @emranio
 - 👀  I love to play video games :P 
 - 🌱  I’m currently NOT available for hire.
-- 📫  How to reach me >> emran.io@outlook.com
+- 📫  How to reach me >> emranio@yahoo.com
 
 <!---
 emranio/emranio is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
