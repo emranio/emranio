@@ -1,5 +1,5 @@
 - 👋  Hi, I’m @emranio
-- 👀  I love to play video games :P 
+- 👀  Just quitted playing video games :)
 - 🌱  I’m currently NOT available for hire.
 - 📫  How to reach me >> emranio@yahoo.com
 
