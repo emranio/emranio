@@ -1,6 +1,6 @@
 - 👋  Hi, I’m @emranio
-- 👀  Just quitted playing video games :)
-- 🌱  I’m currently NOT available for hire.
+- 👀  Part-time video gamer :)
+- 🌱  NOT available for hire.
 - 📫  How to reach me >> emranio@yahoo.com
 
 <!---
